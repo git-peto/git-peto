@@ -6,3 +6,5 @@
 - 💬 Ask me about ANYTHING
 - 📫 How to reach me: rrudyhome@gmail.com
 - ⚡ Fun fact: Firefox logo isn't a fox :open_mouth: #*shock*
+
+Have a lot of private repo.. Yeah, it's private.. sorry can't share :cry:
